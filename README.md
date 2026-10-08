@@ -1,1 +1,1 @@
-I am destroyer of worlds
+Now I am become Death, the destroyer of worlds
